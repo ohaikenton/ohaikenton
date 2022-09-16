@@ -1,5 +1,4 @@
-- [戻れない日々の続きを歩いていくんだ。](https://www.youtube.com/watch?v=kzdJkT4kp-A)
-- [忘れられないメロディーも，今日でさよなら。](https://www.youtube.com/watch?v=vcGbefQBvJ4)
+i dont know what im doing
 <!--- 
 - 👋 Hi, I’m @ohaikenton
 - 👀 I’m interested in ...
